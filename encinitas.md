@@ -6,3 +6,4 @@
 - Regal Seagull :chicken: :beer:
 - Urbn :pizza:
 - Vigilucci's :spaghetti: 🍷
+- Board & Brew :beer: :taco:
